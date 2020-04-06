@@ -14,7 +14,9 @@ Dec’19: Командная победа в треке No3 Startup-Hackathon (h
 Мой вклад: Создал MVP мобильного приложения для мониторинга и контроля системы источников питания WATTS Baterry
 
 Мои приложения в AppStore:
+
 My Deposits: https://apple.co/38lnfwu 
+
 Your SIP : https://apple.co/3bxEg8M
 
 
