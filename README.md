@@ -51,10 +51,14 @@ Field Activity Support Executive, Владивосток | Апр. 2013- Июн�
 - Подготовка аналитических отчетов по результатам торговых программ
 - Мониторинг эффективности торговых программ и инноваций
 
+
 MICROSOFT Corporation
 
 Intern Tomsk |Июль 2013 - Июнь 2014
 
 КОНТАКТЫ
 
-okuneev@gmail.com Tg,Watsap, tel. +7-913-207-30-95 skype: OkuneevM inst: okuneev.photo
+okuneev@gmail.com 
+Tg,Watsap, tel. +7-913-207-30-95
+skype: OkuneevM 
+inst: okuneev.photo
